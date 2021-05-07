@@ -1,1 +1,1 @@
-Repositório Lunacore - Gay.
+Joguinho.
